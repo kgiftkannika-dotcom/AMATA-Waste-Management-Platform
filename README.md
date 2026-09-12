@@ -1,0 +1,1 @@
+# AMATA-Waste-Management-Platform
